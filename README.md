@@ -1,1 +1,0 @@
-# chrodingers-sudo.github.io
